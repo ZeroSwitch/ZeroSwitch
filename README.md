@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @ZeroSwitch
+- 👀 I’m interested in making the world better and safer for my family... and my extension, yours.
+- 🌱 I’m currently learning everything. I will never stop improving. No skill is ever truly mastered.
+- 💞️ I’m looking to collaborate on my first indie game.
+- 📫 How to reach me: on here. I don't give private information.
+- 😄 Pronouns: default configuration
+- ⚡ Fun fact: did you know, sunsets are an optical illusion? As our star approaches the horizon, light bends over the planet, and still reaches your eyes. However, they become redshifted. Ergo, sunsets are reds, pinks, etc.
+- When in reality, the star has already dipped below the actual horizon. It's also why, at times, you notice weird visuals, like the sides of the star being cut off, jagged, etc. 
